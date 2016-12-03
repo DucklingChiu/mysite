@@ -17,5 +17,7 @@ A Journalist.
 ### Links
 
  * [粉絲頁](https://www.facebook.com/DMunclesays)
+ * [你好](http://jerry11223.hhtpe.me)
+ * [莎莎](http://chiusasha.hhtpe.me)
 
 - - -
